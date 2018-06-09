@@ -4,4 +4,4 @@ markdown: kramdown
 highlighter: rouge
 timezone: America/New_York
 url: https://dcruzships.github.io
-baseurl: "/sam_yonski"
+baseurl: "/AMBlog"
