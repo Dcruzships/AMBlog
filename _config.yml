@@ -1,0 +1,5 @@
+name: AMBlog
+title: AMBlog
+markdown: redcarpet
+highlighter: pygments
+timezone: America/New_York
