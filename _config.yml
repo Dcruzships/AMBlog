@@ -1,5 +1,5 @@
 name: AMBlog
 title: AMBlog
-markdown: redcarpet
-highlighter: pygments
+markdown: kramdown
+highlighter: rouge
 timezone: America/New_York
