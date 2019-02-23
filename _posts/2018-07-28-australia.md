@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Australia/Rambles
-cover: covers/04.png
+cover: https://i.imgur.com/sVxxfM7.png
 date:   2018-07-28 13:41:00
 categories: posts
 ---
