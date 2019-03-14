@@ -5,3 +5,4 @@ highlighter: rouge
 timezone: America/New_York
 url: https://dcruzships.github.io
 baseurl: "/AMBlog"
+analytics-id: "UA-121153070-2"
