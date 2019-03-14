@@ -1,8 +1,9 @@
 ---
 layout: default
-title: {{ post.title }}
-cover: {{ post.cover }}
-description: {{ post.description }}
+title: {{ site.post.first.title }}
+cover: {{ site.post.first.cover }}
+description: {{ site.post.first.description }}
 ---
 
+{% include head.html %}
 {% include post.html %}
