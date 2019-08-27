@@ -1,6 +1,6 @@
 ---
 layout: post
-title: People and Airplanes - The Altona Meadows Blog
+title: People and Airplanes
 cover: https://i.imgur.com/V30IQ7W.png
 description: Airports can be kinda scary and idk why
 date:   2018-10-24 10:23:00
