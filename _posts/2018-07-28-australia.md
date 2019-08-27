@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Australia/Rambles
+title: Australia/Rambles - The Altona Meadows Blog
 cover: https://i.imgur.com/sVxxfM7.png
 description: I want to sing more
 date:   2018-07-28 13:41:00
