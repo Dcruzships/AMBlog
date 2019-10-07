@@ -31,9 +31,9 @@ So, if you're trying to find out who you are, just look at those around you. Loo
 
 Here's a short poem I wrote a few days ago
 
-free will is a for loop
-for the early birds in the east
-and the night owls on the right
+free will is a for loop<br>
+for the early birds in the east<br>
+and the night owls on the right<br>
 
-and just as a lantern turns nothing into light
+and just as a lantern turns nothing into light<br>
 the universe is a couple playing spore on prom night
