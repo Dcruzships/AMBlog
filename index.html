@@ -7,5 +7,8 @@ description: A blog for ramblings, demos, nudes, and knock knock jokes.
 
 {% include head.html %}
 {% assign page = site.posts.first %}
+{% assign title = page.title %}
+{% assign cover = page.cover %}
+{% assign description = page.description}
 {% assign content = page.content %}
 {% include post.html %}
