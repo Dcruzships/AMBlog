@@ -39,3 +39,26 @@ and the night owls on the right<br>
 
 and just as a lantern turns nothing into light<br>
 the universe is a couple playing spore on prom night
+
+<br>
+<br>
+<br>
+
+## edit01 from a few weeks ago
+
+We went over the library of babel in one of my classes today. If you don't know what that is, here's a couple links. Basically, the library of babel is a short story by Borges something I forget his name tbh anyways, it's this infinitely large place that holds an infinite number of books, kinda. It's got every single combination of every letter in the alphabet, along with the space comma and period characters. So there's millions of books with just "hrksgsifjeis" but next to it you might find the first Harry Potter novel missing its penultimate chapter, and next to that there might be a book with 500 pages of the word "n****." Oh and the library is made of hexagonal shaped rooms, with bookshelves on each wall. And there's lamps that create people. The big idea is that this place represents the universe, with every single possible phrase, thought, tweet, comment, everything in this one infinite space.
+
+If you go a bit further, you can kinda see how it represents the physical world. With the big bang, everything that ever could be popped into existence. People came along and turned trees into books and rocks into cups and whatever. But back to the library, the text. That idea that everything you could ever possibly say or think has already been created. That somewhere in that library there's a book that has this exact blog post, fucking wild.
+
+"But Brandon, the library of Babel isn't real" <a href="https://libraryofbabel.info/" target="_blank">Welcome to 2019 my guy it's right here,</a> bang search whatever you want and you can find it somewhere. Every one of your thoughts since birth is there. Every single text you've sent and sentence you've spoken since you were born is there. You're not original. You've never been original. You can't be original, at least with language anyways.
+
+This makes me feel weird because I really care about originality. I hate mimicry, imitation, cover songs. I've always felt like you've only got one life, maybe 100 years, so why waste any second of that on other people's work? Who are you? Because when you're gone, what's left? Your ukelele cover of Creep by Radiohead that's what you want people to think about after your dead, come on man. Write something new, be someone bold, say something original. Well, I guess you can't do that anymore. Or you never could, because everything that could be said or written already has been. Someone beat you to the big bang god dang punchline with everything ever that ever could be. Big yikes.
+
+I quit my job at The Reporter the other day. I got a new job at Artesanos on campus. You probably never knew I wrote for The Reporter, that's because I only wrote maybe 3 articles. Each of those took me hours and hours to research and interview and vision and write and they each only paid me 10 bucks. Big lol. Also everyone there is really obsessed with making stories out of nothing. I hate being mean, but some of their journalism is really shit. *redacted because it got too mean lol*
+
+<!-- The sentences they use are relentlessly dull, the ideas they explore are basic, the emotions they dwell upon are simple like if I have to read that another person missed their mom during freshman year I am going to ALS Ice Bucket challenge their entire office. Tbh my articles weren't much better anyways, we're all just tryna get paid I guess. -->
+
+So if nothing can be original anymore, can I get mad at other people's work that I find boring because they cover ideas I've already thought about? I mean yeah, I can get mad at whatever I want. It's that idea of meaning, we talked about it in class. If I write "Altona Meadows is sick" what does that mean? Am I saying the city in Victoria, Australia has come down with swine flu? Or maybe I mean that the place is cool. Meaning comes with context, language is just something humans came up with to communicate with each other, so without somebody else giving you meaning, you'll never understand anything. In that case I meant that my band, Altona Meadows, is dope and you should check it out here. I've given that noun meaning, it's no longer just a place, to those who know about it, it's also me.
+
+I'm 21 now btw. For my birthday I got really drunk at my old band's gig and yelled a lot of dumb shit at a lot of strangers. It was wild! This is my year of giving 0 fucks. It's my year where I am finally bound by no rules, I'm an adult and I'm ready to leap into the sky. I've already done a whole lot by now, so I'm gonna keep moving. See how crazy I can get. How many people I can piss off. How many songs I can write. How many jobs I can find. Ngl, I'm terrified. How can you not be terrified in this world? I feel like a little kid. Like a kid in an arcade, playing at a game machine he can't afford. Just trying to get on the leader board so he can get "DIK" up on that list, because why not lol.
+What do you say when everything's already been said? Well, you don't say anything at all.
