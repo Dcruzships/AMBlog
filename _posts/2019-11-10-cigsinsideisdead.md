@@ -68,9 +68,7 @@ I can make <a href="https://www.youtube.com/watch?v=XcForynThz0" target="_blank"
 
 And <a href="https://gl-ph.com/issue00/ifATreeFallsOnU/intervention.html" target="_blank">this.</a>
 
-And <a href="https://youtu.be/XmKY9tzAbX4" target="_blank">this</a> and <a href="https://dcruzships.github.io/altonameds_radio/" target="_blank">this</a> and <a href="https://www.youtube.com/watch?v=_zINrHA5stc" target="_blank">this</a> and even <a href="https://youtu.be/LFNh78efqek" target="_blank">this</a> all on my own, and Cigs Inside have only written three shitty songs and covered Benny and the Jets and as much as I love them, I love myself more. And I can't put up with the disrespect, the taking for granted, the crummy musicianship, the drugs, the tardiness, the conversations behind backs and the rumors in bathrooms I'm done. I can make better art than them, and I believe my stuff deserves to flourish more than theirs.
-
-Name one Cigs Inside lyric.
+And <a href="https://youtu.be/XmKY9tzAbX4" target="_blank">this</a> and <a href="https://dcruzships.github.io/altonameds_radio/" target="_blank">this</a> and <a href="https://www.youtube.com/watch?v=_zINrHA5stc" target="_blank">this</a> and even <a href="https://youtu.be/LFNh78efqek" target="_blank">this</a> all on my own, and Cigs Inside have only written three shitty songs and covered Benny and the Jets and as much as I love them, I love myself more. And I can't put up with the disrespect, the taking for granted, the crummy musicianship, the drugs, the tardiness, the conversations behind backs and the rumors in bathrooms I'm done. Especially since it's affecting my own art now, and I believe my stuff deserves to flourish more than theirs. This whole thing is just about me taking back my own equipment, that's it. I hope they can find the money to replace it all.
 
 Maybe it's harsh, maybe I'm a dick, or maybe I'm just starting to respect myself and realize that maybe I'm not just a fat depressed Indian loser,
 
