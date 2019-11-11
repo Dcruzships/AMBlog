@@ -26,6 +26,7 @@ That's what I yelled as I got into an Uber after my first gig as Captain Brando.
 That gig was two weeks ago. Cigs Inside, my old band, my old friends, they were set to start at 10pm. Naturally, they show up at 10:15, only get set up by 10:45 when Greg, my old best friend, says that he forgot his guitar. Now, there's around 100 kids in the yard, 200 more on the way, and they're 45 minutes late which cuts into my set. Thankfully, Theo brought a spare. But Greg still wanted his guitar so I go to their house with a friend, scoop it up, come back, and they still haven't started their set. It's 11:15. Greg has a guitar, what's wrong?
 
 Oh right I forgot, Greg's a guitarist. So he can only play on his own guitar.
+*EDIT Gregorious has informed me that he didn't have a strap, so he couldn't stand and play. So, you couldn't sit down for 20 minutes? Three songs at least? Chairs exist, or just criss cross apple sauce my guy. It'll feel weird, so don't go as hard, quarter note rhythms for a couple songs, come on.*
 
 Do you see how much bullshit that is? They're an hour late, fumbling and mumbling and there's kids waiting right there. You're not Jimmy Hendrix, you're Greg. Start the set.
 
